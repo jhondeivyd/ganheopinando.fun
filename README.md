@@ -1,0 +1,1 @@
+# ganheopinando.fun
